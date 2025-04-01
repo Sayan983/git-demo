@@ -1,0 +1,1 @@
+emni read korar jonne 
